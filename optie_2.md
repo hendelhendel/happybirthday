@@ -2,7 +2,14 @@ Zear donki!
 
 Kies voor een 'rowdy ride' of 'calm vibes' jij bepaald! kies er 1 en draai het in de ronde! naar Dat is optie 2. 
 
-أكتشفت آنا تسجيلًا قديمًا يحمل عنوان "صدى الرغبة". عندما قامت بتشغيله، جُذبت إلى عالم الأحلام، يقودها امرأة من الغلاف. همست المرأة بأسرار، ولكنها حذرتها أيضًا أن ليس كل الحقائق مُعدّة للاكتشاف. بعد تجربة مكثفة، أدركت آنا أن الموسيقى قد غيّرتها. قررت إنهاء الأمر، لكن صدى الرغبة ظل يتردد في قلبها، جاذبية غامضة لم تختفِ أبدًا.De massa en de verdeling ervan rond de rotatieas bepalen het traagheidsmoment, wat invloed heeft op hoe snel de schijf kan versnellen of afremmen. Wrijving speelt ook een rol, vooral bij contact met oppervlakken of naalden op draaitafels, en kan de rotatie bevorderen of vertragen. Daarnaast kunnen resonantiefrequenties optreden, wat kan leiden tot versterkte bewegingen. Dit alles maakt de raaiing op een schijf een complex samenspel van krachten en beweging.
+-----------------------------------------------------------------------------------------------------
+
+أكتشفت آنا تسجيلًا قديمًا يحمل عنوان "صدى الرغبة". عندما قامت بتشغيله، جُذبت إلى عالم الأحلام، يقودها امرأة من الغلاف. همست المرأة بأسرار، ولكنها حذرتها أيضًا أن ليس كل الحقائق مُعدّة للاكتشاف. بعد تجربة مكثفة، أدركت آنا أن الموسيقى قد غيّرتها. قررت إنهاء الأمر، لكن صدى الرغبة ظل يتردد في قلبها، جاذبية غامضة لم تختفِ أبدًا.D
+
+---------------------------------------------------------------------------------------------------------
+
+
+De massa en de verdeling ervan rond de rotatieas bepalen het traagheidsmoment, wat invloed heeft op hoe snel de schijf kan versnellen of afremmen. Wrijving speelt ook een rol, vooral bij contact met oppervlakken of naalden op draaitafels, en kan de rotatie bevorderen of vertragen. Daarnaast kunnen resonantiefrequenties optreden, wat kan leiden tot versterkte bewegingen. Dit alles maakt de raaiing op een schijf een complex samenspel van krachten en beweging.
 
 De overdracht van een trilling gebeurt via mechanische golven, waarbij deeltjes oscilleren rond een evenwichtspositie. Wanneer een deeltje trilt, oefent het kracht uit op naburige deeltjes, waardoor een golfbeweging ontstaat die zich door het medium verspreidt, zoals lucht of water.
 
