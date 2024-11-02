@@ -2,8 +2,8 @@ Ha potentiele klant.
 
 Kiest u voor optie 1? Optie 1 is de meest relaxte optie van allemaal! Verwacht een hol om in te kruipen en een hok om in te zweten. Het wordt extreem. Het wordt relaxed! 
 
-
-
+**De Optie**
+![image](https://github.com/user-attachments/assets/982b59d4-9642-4fb4-97bc-374e9fac5400)
 
 **Wat eerdere klanten zeiden over onze optie**
 --------------------------------------------
